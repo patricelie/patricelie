@@ -15,7 +15,7 @@ Je recherche un stage informatique  afin de continuer à progresser et acquérir
 
 ## Me contacter
 
-Email : [njohpatricelie@gmail.com](mailto:njohpatricelie@gmail.com)
-LinkedIn : [Patricelie Ngueng](https://www.linkedin.com/in/patricelie-rimelda-njoh-ngueng-a3a91a329/)
+Email : [njohpatricelie@gmail.com](mailto:njohpatricelie@gmail.com)<br/>
+LinkedIn : [Patricelie Ngueng](https://www.linkedin.com/in/patricelie-rimelda-njoh-ngueng-a3a91a329/)<br/>
 Localisation : Saint Jean sur Richelieu, Canada
 
